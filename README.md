@@ -8,4 +8,4 @@
 
 ## 📫 Contact Me
 - 📧 Email: tnqa010104@gmail.com  
-- 🔗 Facebook: [Tong Nguyen Quoc Anh](https://www.facebook.com/weninthelab)  
+- 🔗 Linkedin: www.linkedin.com/in/tnqa11 
